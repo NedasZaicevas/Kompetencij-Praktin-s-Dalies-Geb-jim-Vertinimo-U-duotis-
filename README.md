@@ -1,0 +1,1 @@
+# Kompetencij-Praktin-s-Dalies-Geb-jim-Vertinimo-U-duotis-
